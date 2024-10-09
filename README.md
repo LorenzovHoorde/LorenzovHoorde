@@ -6,7 +6,7 @@
 
 - 😄 Riddle:
   > It cannot be heard, it cannot be felt,
-Yet in its presence, even the bravest have knelt.
+Yet in its presence, the bravest have knelt.
 It's louder than thunder, though it makes not a sound,
 A weightless force that can truly astound.
 It fills every corner, though it's nothing at all,
